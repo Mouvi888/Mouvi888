@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Mouvi
+- 👀 I’m interested in html
+- 🌱 I’m like playing to stalcraft
+- 📫 How to reach me, email - help@mouvi.lol, discord - mouvi.rework, telegram - @mouvi_rework.
